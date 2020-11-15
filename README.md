@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-## this is 阿biu~
+🌱 this is 阿biu~ , welcome to my space~
